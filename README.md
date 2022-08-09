@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Darnie12
+- I'm a software Developer. 
